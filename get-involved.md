@@ -1,4 +1,4 @@
-#How to Get Involved
+# How to Get Involved
 
-Send people to this repository
-Reach out to @tessak22 to help build this awesome list
+* Send people to this repository
+* Email hello@outspokenwomen.io to help organize this movement
